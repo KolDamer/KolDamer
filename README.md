@@ -2,7 +2,7 @@
 - 👀 I’m interested in Graphic design ,video editing & motion design
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking for any available job opportunities (either personal or a collaboration)
-- 📫 Reach me via Gmail: kena3727@gmail.com   telegram: t.me/Kol_Damer
+- 📫 Reach me via Gmail: kena3727@gmail.com   telegram: @Kol_Damer
 - ⚡ Fun fact: Always available,we can link up and build our skills together 
 
 <!---
